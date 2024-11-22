@@ -1,4 +1,4 @@
-# Hi there im jhoe 👋
+# Hi there im Joe 👋
 ## liks para meus trabalhos artísticos
 * [Pinterest](https://br.pinterest.com/Joesiqueiraart/)
 * [ArtStation](https://www.artstation.com/joesiqueira)
