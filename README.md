@@ -1,6 +1,6 @@
 # Hi there im jhoe 👋
 ## liks para meus trabalhos artísticos
-* [Pinterest](https://google.com](https://br.pinterest.com/Joesiqueiraart/)
+* [Pinterest](https://br.pinterest.com/Joesiqueiraart/)
 * [ArtStation](https://www.artstation.com/joesiqueira)
 <!--
 **1siqueira/1siqueira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
